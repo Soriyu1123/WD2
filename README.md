@@ -1,1 +1,1 @@
-# https://soriyu1123.github.io
+# https://soriyu1123.github.io/WD2/
